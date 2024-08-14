@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @shreyasing12
+- 👀 I’m interested in Computer science,Data analytics,cloud computing and AI 
+- 🌱 I’m currently learning C,C++
+- 💞️ I’m looking to collaborate on interesting projects from the field of Computer science and open to new challenges and oppurtunities
+- 📫 How to reach me through Git hub and email:shreya.singaravel@gmail.com
+- 😄 Pronouns: she/her
+- ⚡ Hobbies: I am vocal carnaric singer,acrlylic painting,attending hackathons,desgining art products
