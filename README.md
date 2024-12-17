@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on interesting projects from the field of Computer science and open to new challenges and oppurtunities
 - 📫 How to reach me through Git hub and email:shreya.singaravel@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Hobbies: I am vocal carnaric singer,acrylic painting,attending hackathons,desgining art products
+- ⚡ Hobbies: Attending hackathons, Developing projects!!
